@@ -1,5 +1,5 @@
 # 💫 About Me:
-Motivated and results-driven Electronics and Communication Engineering student with a strong passion for<br>problem-solving, innovation, and continuous learning. Eager to apply academic knowledge and contribute to<br>impactful projects
+𝑴𝒐𝒕𝒊𝒗𝒂𝒕𝒆𝒅 𝒂𝒏𝒅 𝒓𝒆𝒔𝒖𝒍𝒕𝒔-𝒅𝒓𝒊𝒗𝒆𝒏 𝑬𝒍𝒆𝒄𝒕𝒓𝒐𝒏𝒊𝒄𝒔 𝒂𝒏𝒅 𝑪𝒐𝒎𝒎𝒖𝒏𝒊𝒄𝒂𝒕𝒊𝒐𝒏 𝑬𝒏𝒈𝒊𝒏𝒆𝒆𝒓𝒊𝒏𝒈 𝒔𝒕𝒖𝒅𝒆𝒏𝒕 𝒘𝒊𝒕𝒉 𝒂 𝒔𝒕𝒓𝒐𝒏𝒈 𝒑𝒂𝒔𝒔𝒊𝒐𝒏 𝒇𝒐𝒓<𝒃𝒓>𝒑𝒓𝒐𝒃𝒍𝒆𝒎-𝒔𝒐𝒍𝒗𝒊𝒏𝒈, 𝒊𝒏𝒏𝒐𝒗𝒂𝒕𝒊𝒐𝒏, 𝒂𝒏𝒅 𝒄𝒐𝒏𝒕𝒊𝒏𝒖𝒐𝒖𝒔 𝒍𝒆𝒂𝒓𝒏𝒊𝒏𝒈. 𝑬𝒂𝒈𝒆𝒓 𝒕𝒐 𝒂𝒑𝒑𝒍𝒚 𝒂𝒄𝒂𝒅𝒆𝒎𝒊𝒄 𝒌𝒏𝒐𝒘𝒍𝒆𝒅𝒈𝒆 𝒂𝒏𝒅 𝒄𝒐𝒏𝒕𝒓𝒊𝒃𝒖𝒕𝒆 𝒕𝒐<𝒃𝒓>𝒊𝒎𝒑𝒂𝒄𝒕𝒇𝒖𝒍 𝒑𝒓𝒐𝒋𝒆𝒄𝒕𝒔
 
 
 ## 🌐 Socials:
